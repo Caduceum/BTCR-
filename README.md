@@ -1,0 +1,2 @@
+# BTCR-
+Bitcoin owners rights.
